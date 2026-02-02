@@ -5,7 +5,9 @@
 </p>
 
 
-<img width="1594" height="2042" alt="1000019761" src="https://github.com/user-attachments/assets/8eccb579-d545-44d5-b024-84ab08a5a315" />
+<img width="1594" height="336" alt="1000022906" src="https://github.com/user-attachments/assets/ae64aaf7-dc13-4894-b354-ae235dc5ff8e" />
+
+<p align="center"><img width="554" height="554" alt="1000015522" src="https://github.com/user-attachments/assets/b7ee61ca-99b3-4f1b-bae6-2e67c194b901" />
           
           
 <p align="center">$\color{#4E91AB}{❝𝙘𝙖𝙣'𝙩}$ $\color{#4E91AB}{𝙘𝙖𝙩𝙘𝙝}$
@@ -38,4 +40,4 @@ $\color{#D87450}{- 𝙘𝙤𝙞𝙡}$
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31bjiv5elpi7oiacb72rv7vgnxi4&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=8f314e&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)    
 
-<img width="1594" height="548" alt="1000019778" src="https://github.com/user-attachments/assets/0a92f54d-e47c-4dd2-be9f-753018b97cee" />
+<img width="1594" height="378" alt="1000022910" src="https://github.com/user-attachments/assets/8e9c62ea-241b-4a84-bde3-0d12efaf5fb4" />
