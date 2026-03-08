@@ -37,9 +37,7 @@ $\color{#D4635C}{- 𝙘𝙤𝙞𝙡}$
 <a href=https://rentry.co/angelicdeceitt>𝙧𝙚𝙣𝙩𝙧𝙮</a>
 
   </p>
-<p align="center">ᵗʰᵃⁿᵏʸᵒᵘ ᶠᵒʳ ᵍⁱᵐᵐⁱᶜᵏˢ ᵃⁿᵈ ˢⁱᵍⁿⁱⁿᵍ ᵃᵗᵃ ! 
-          
-    𝙣𝙤𝙩𝙚 : 𝙞 𝙢𝙞𝙜𝙝𝙩 𝙢𝙞𝙨𝙨 𝙨𝙤𝙢𝙚 𝙢𝙚𝙨𝙨𝙖𝙜𝙚𝙨 𝙚𝙨𝙥𝙚𝙘𝙞𝙖𝙡𝙡𝙮 𝙞𝙛 𝙮𝙤𝙪 𝙙𝙞𝙙𝙣'𝙩 𝙬𝙝𝙞𝙨𝙥𝙚𝙧 𝙞𝙣 𝙩𝙝𝙚 𝙛𝙞𝙧𝙨𝙩 𝙥𝙡𝙖𝙘𝙚 𝙙𝙪𝙚 𝙩𝙤 𝙗𝙚𝙞𝙣𝙜 𝙖𝙛𝙠 𝙢𝙤𝙨𝙩 𝙤𝙛 𝙩𝙝𝙚 𝙩𝙞𝙢𝙚 , 𝙨𝙤 𝙨𝙤𝙧𝙧𝙮 .
+<p align="center">ᵗʰᵃⁿᵏʸᵒᵘ ᶠᵒʳ ᵍⁱᵐᵐⁱᶜᵏˢ ᵃⁿᵈ ˢⁱᵍⁿⁱⁿᵍ ᵃᵗᵃ !
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31bjiv5elpi7oiacb72rv7vgnxi4&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=8f314e&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)    
 
