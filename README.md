@@ -4,9 +4,6 @@
   </a>
 </p>
 
-<img width="1594" height="536" alt="1000024594" src="https://github.com/user-attachments/assets/fb8031bb-8ac3-4404-acea-51753dfd2b00" />
-<p align="center"><img width="554" height="554" alt="1000015522" src="https://github.com/user-attachments/assets/b7ee61ca-99b3-4f1b-bae6-2e67c194b901" />
-
 <img width="1594" height="336" alt="1000022906" src="https://github.com/user-attachments/assets/65a90b76-18fb-405e-94cc-bf4f0c6229fc" />
           
 <p align="center">$\color{#AB405C}{❝𝙘𝙖𝙣'𝙩}$ $\color{#AB405C}{𝙘𝙖𝙩𝙘𝙝}$
