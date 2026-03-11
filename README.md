@@ -1,18 +1,15 @@
+REMAKING SOON
+
+
+![1000029552](https://github.com/user-attachments/assets/8fd5a574-5785-43b8-b1ef-90a4b1a7d5b3)</a>
+
+
+<p align="center">my boyfriedn ♥️♥️⤴︎⤴︎
+  
 <p align="center">
-  <a href="https://github.com/AngelicDeceit">
-    <img align="center" src="https://komarev.com/ghpvc/?username=AngelicDeceit&label=coilshot&base=2579&color=AB405C&style=plastic" alt="coilshot Profile Views" />
-  </a>
-</p>
-
-![1000019612](https://github.com/user-attachments/assets/1b6f17da-110e-43e1-92c0-33313b736db4)
-
-
-<p align="center">remaking this soon 
-
-<p align="center">
-  <a href=https://naia.straw.page/>𝙨𝙩𝙧𝙖𝙬𝙥𝙖𝙜𝙚</a> ✦︎
-<a href=https://angelicdeceit.atabook.org/>𝙖𝙩𝙖𝙗𝙤𝙤𝙠</a> ✦︎
-<a href=https://rentry.co/angelicdeceitt>𝙧𝙚𝙣𝙩𝙧𝙮</a>
+  <a href=https://naia.straw.page/>straw</a>   
+<a href=https://angelicdeceit.atabook.org/>新book</a>  
+<a href=https://rentry.co/angelicdeceitt>rentry</a>
 
   </p>
 <p align="center">ᵗʰᵃⁿᵏʸᵒᵘ ᶠᵒʳ ᵍⁱᵐᵐⁱᶜᵏˢ ᵃⁿᵈ ˢⁱᵍⁿⁱⁿᵍ ᵃᵗᵃ !
