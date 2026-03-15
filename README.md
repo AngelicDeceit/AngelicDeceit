@@ -1,4 +1,5 @@
   # REMAKING SOON
+  both git + rentry but im too unmotivated to do anything okayimsory
 
 
 ![1000029552](https://github.com/user-attachments/assets/8fd5a574-5785-43b8-b1ef-90a4b1a7d5b3)</a>
