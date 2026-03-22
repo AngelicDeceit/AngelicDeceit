@@ -1,20 +1,18 @@
-  # REMAKING SOON
-<p align="center">github + rentry are on wip, I'll be remaking them both soon when im motivated enough to do it ;-;
+  ## REMAKING SOON 
+<p align="center"><ins>github + rentry are on wip, I'll be remaking them both soon when im motivated enough to do it</ins>
   
 ![1000029552](https://github.com/user-attachments/assets/8fd5a574-5785-43b8-b1ef-90a4b1a7d5b3)</a>
 
 
-<p align="center">my boyfriedn ♥️♥️⤴︎⤴︎
-
-<p align="center">C+H are welcome 
-
-<p align="center">
+<p align="center">my boyfriedn♥️♥️⤴︎
+  <details><summary></summary><p align="center">𝘴𝘰𝘶𝘭𝘣𝘧 𝘯𝘰𝘯𝘴𝘩𝘢𝘳𝘪𝘯𝘨 𝘺𝘶𝘮𝘦 (𝘥𝘰𝘶𝘣𝘭𝘦𝘴 𝘥𝘯𝘪)</details></summary>
+<p align="center">═══════
 
 
+<p align="center">C+H are welcome even if i don't have it in name, unless theres dnis , always w2i my public chat is off, BASIC DNI + under16 iwec or dni
 
-
-
-
+<p align="center"><ins>current interest</ins>
+<p align="center">fnf (mainly the corruption mod lel < soulbf 3), phighting!, eddsworld, badthings (fandom iwc), tadc, beastars + more (ask)
 
   
 <p align="center">
