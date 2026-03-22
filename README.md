@@ -9,7 +9,7 @@
 <p align="center">═══════
 
 
-<p align="center">C+H are welcome even if i don't have it in name, unless theres dnis , always w2i my public chat is off, BASIC DNI + under16 iwec or dni
+<p align="center">C+H are welcome even if i don't have it in name, unless theres dnis. always w2i my public chat is off. BASIC DNI + under16 iwec or dni at all
 
 <p align="center"><ins>current interest</ins>
 <p align="center">fnf (mainly the corruption mod lel < soulbf 3), phighting!, eddsworld, badthings (fandom iwc), tadc, beastars + more (ask)
