@@ -9,7 +9,7 @@
 <p align="center">═══════
 
 
-<p align="center">C+H are welcome even if i don't have it in name, unless stated otherwise. always w2i preferred my public chat is off. BASIC DNI + under16 iwec or dni at all. please iwcare, im a very paranoid person
+<p align="center">C+H are welcome even if i don't have it in name, unless stated otherwise. always w2i preferred my public chat is off. BASIC DNI + under16 iwec or dni at all. please iwcare at all times especially if we're complete strangers (╥ᆺ╥;)
 
 <p align="center"><ins>current interest</ins>
 <p align="center">fnf (mainly the corruption mod lel < soulbf 3), phighting!(coilshot & shuribox int i luv them) , eddsworld , badthings (fandom iwc) , tadc , beastars + more (ask)
