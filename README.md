@@ -5,11 +5,12 @@
 
 
 <p align="center">my boyfriedn♥️♥️⤴︎
-  <details><summary></summary><p align="center">𝘴𝘰𝘶𝘭𝘣𝘧 𝘯𝘰𝘯𝘴𝘩𝘢𝘳𝘪𝘯𝘨 𝘺𝘶𝘮𝘦 (𝘥𝘰𝘶𝘣𝘭𝘦𝘴 𝘥𝘯𝘪)</details></summary>
+<details><summary></summary><p align="center">𝘴𝘰𝘶𝘭𝘣𝘧 𝘯𝘰𝘯𝘴𝘩𝘢𝘳𝘪𝘯𝘨 𝘺𝘶𝘮𝘦 (𝘥𝘰𝘶𝘣𝘭𝘦𝘴 𝘥𝘯𝘪)</details></summary>
 <p align="center">═══════
 
 
-<p align="center">C+H are welcome even if i don't have it in name, unless stated otherwise. always w2i preferred my public chat is off. BASIC DNI + under16 iwec or dni at all. please iwcare at all times if we're complete strangers, thank u (╥ᆺ╥;)
+<p align="center">C+H are welcome even if i don't have it in name, unless stated otherwise. always w2i preferred my public chat is off. 
+<p align="center">BASIC DNI + under16 iwec or dni at all. anyone who started pointless dramas dni, yall annoying as hell. please iwcare at all times if we're complete strangers, thankyou (╥ᆺ╥;)
 
 <p align="center"><ins>current interest</ins>
 <p align="center">fnf (mainly the corruption mod lel < soulbf 3), phighting!(coilshot & shuribox int i luv them) , eddsworld , badthings (fandom iwc) , tadc , beastars + more (ask)
