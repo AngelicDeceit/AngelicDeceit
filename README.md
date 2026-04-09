@@ -1,4 +1,4 @@
-<p align="center"><ins>github + rentry are on wip, I'll be remaking them both soon when im motivated enough to do it</ins>
+<p align="center">remaking . . .
   
 ![1000029552](https://github.com/user-attachments/assets/8fd5a574-5785-43b8-b1ef-90a4b1a7d5b3)</a>
 
