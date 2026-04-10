@@ -1,21 +1,20 @@
-<p align="center">remaking . . .
-  
-![1000029552](https://github.com/user-attachments/assets/8fd5a574-5785-43b8-b1ef-90a4b1a7d5b3)</a>
-
-
-<p align="center">my boyfriedn♥️♥️⤴︎⤴︎
-
-
-<p align="center">read rentry for infos 
-
- 
 <p align="center">
-  <a href=https://naia.straw.page/>straw</a>   
-<a href=https://angelicdeceit.atabook.org/>新book</a>  
-<a href=https://rentry.co/AngelicDeceitBYI>rentry</a>
+  <a
+    
+![](https://komarev.com/ghpvc/?username=AngelicDeceit&color=B1723A&style=plastic&label=HeavenlyTune&abbreviated=true)
 
-  </p>
-<p align="center">ᵗʰᵃⁿᵏʸᵒᵘ ᶠᵒʳ ᵍⁱᵐᵐⁱᶜᵏˢ ᵃⁿᵈ ˢⁱᵍⁿⁱⁿᵍ ᵃᵗᵃ !
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31bjiv5elpi7oiacb72rv7vgnxi4&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=8f314e&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile) 
+<img width="2000" height="1780" alt="1000037765" src="https://github.com/user-attachments/assets/d4a48855-9820-49c8-9c5e-6e8ede57b372" />
 
+  
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Dynalight&pause=1000&color=C6B382&center=true&width=295&lines=No%2C+he+won't+walk+away.+.+.;He+won't+walk+away.+.+.;I+love+my+stupid+boyfriend+%F0%96%B9%AD+!+)](https://git.io/typing-svg)
+
+
+<p align="center">
+  <a
+
+[<img width="90" height="80" alt="1000037776" src="https://github.com/user-attachments/assets/b32a8b1f-0e50-4af8-bc3e-7591347e1123"/>](https://naia.straw.page/)[<img width="90" height="80" alt="1000037784" src="https://github.com/user-attachments/assets/573e1837-f568-432f-85dc-591404524831" />](https://angelicdeceit.atabook.org/)[<img width="90" height="80" alt="1000037783" src="https://github.com/user-attachments/assets/a5de667f-4018-435b-8613-13d53ad892d4" />](https://rentry.co/AngelicDeceitBYI)
+
+  
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31bjiv5elpi7oiacb72rv7vgnxi4&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=205c59&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31bjiv5elpi7oiacb72rv7vgnxi4&redirect=true)
