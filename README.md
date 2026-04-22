@@ -3,7 +3,7 @@
     
 ![](https://komarev.com/ghpvc/?username=AngelicDeceit&color=B1723A&style=plastic&label=HeavenlyTune&abbreviated=true)
 
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Contrail+One&pause=1000&color=898583&center=true&width=435&lines=thankyou+for+300%2B+followers+!+(%CB%B6%E1%B5%94+%E1%B5%95+%E1%B5%94%CB%B6))](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Dynalight&pause=1000&color=C6B382&center=true&width=295&lines=thankyou+for+300%2B+followers+!+(%CB%B6%E1%B5%94+%E1%B5%95+%E1%B5%94%CB%B6))](https://git.io/typing-svg)
 
 <img width="2000" height="1780" alt="1000037765" src="https://github.com/user-attachments/assets/d4a48855-9820-49c8-9c5e-6e8ede57b372" />
 
