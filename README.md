@@ -13,7 +13,7 @@
 <p align="center">
   <a
 
-[<img width="90" height="80" alt="1000037776" src="https://github.com/user-attachments/assets/b32a8b1f-0e50-4af8-bc3e-7591347e1123"/>](https://naia.straw.page/)[<img width="90" height="80" alt="1000037784" src="https://github.com/user-attachments/assets/573e1837-f568-432f-85dc-591404524831" />](https://angelicdeceit.atabook.org/)[<img width="90" height="80" alt="1000037783" src="https://github.com/user-attachments/assets/a5de667f-4018-435b-8613-13d53ad892d4" />](https://rentry.co/AngelicDeceitBYI)
+[<img width="100" height="90" alt="1000039690" src="https://github.com/user-attachments/assets/43ae9885-afe6-485b-a843-cc62103e368f" />](https://naia.straw.page/)[<img width="100" height="90" alt="1000037784" src="https://github.com/user-attachments/assets/573e1837-f568-432f-85dc-591404524831" />](https://angelicdeceit.atabook.org/)[<img width="100" height="75" alt="1000039691" src="https://github.com/user-attachments/assets/f99f2bbe-321a-4df1-81ba-3f79a6363b49" />](https://rentry.co/AngelicDeceitBYI)
 
   
 
