@@ -14,7 +14,7 @@
 <p align="center">
   <a
 
-[<img src="https://files.catbox.moe/qnb1da.png">](https://naia.straw.page/)[<img src="https://files.catbox.moe/4qjsog.png">](https://angelicdeceit.atabook.org/)[<img src="https://files.catbox.moe/jy1sss.png">](https://rentry.co/AngelicDeceitBYI)[<img src="https://files.catbox.moe/42jovr.png">](https://rentry.co/HATEMAILFORFRIENDS)
+[<img src="https://files.catbox.moe/qnb1da.png">](https://naia.straw.page/)[<img src="https://files.catbox.moe/4qjsog.png">](https://angelicdeceit.atabook.org/)[<img src="https://files.catbox.moe/jy1sss.png">](https://rentry.co/deceitfulangell)[<img src="https://files.catbox.moe/42jovr.png">](https://rentry.co/HATEMAILFORFRIENDS)
 
 
 
