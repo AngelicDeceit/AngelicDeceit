@@ -5,7 +5,7 @@
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Dynalight&pause=1000&color=C6B382&center=true&repeat=false&width=295&lines=thankyou+for+400%2B+followers+!+(%CB%B6%E1%B5%94+%E1%B5%95+%E1%B5%94%CB%B6))](https://git.io/typing-svg)
 
-<img src="https://files.catbox.moe/ldeauj.png" style="border:0; background:transparent;">
+<img width="2153" height="1780" alt="1000039692" src="https://github.com/user-attachments/assets/a54a0edd-5155-4e3c-9c25-a43ee31d49d1" />
   
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Dynalight&pause=1000&color=C6B382&center=true&width=295&lines=No%2C+he+won't+walk+away.+.+.;He+won't+walk+away.+.+.;I+love+my+stupid+boyfriend+%F0%96%B9%AD+!+)](https://git.io/typing-svg)
 
