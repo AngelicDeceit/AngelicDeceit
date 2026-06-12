@@ -18,7 +18,7 @@
  <p align="center">
   <a
     
-  i will block freely if you are WEIRDDDD 
+  i block freely, don't EVER associate me with weird/toxic yumeshippers + dni if you're a yume thats dehumanize your doubles to the point of harassing them, being competitive and generally WEIRDDDD ;_;;;
 
 
 
